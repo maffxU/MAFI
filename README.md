@@ -8,4 +8,4 @@
 
 if u can't kill me this makes me some kind a God. <img width="20" height="20" alt="ррррпа" src="https://github.com/user-attachments/assets/a216fbe9-1eb7-42a0-bd2e-aebd15e7fac1" />
 
-![rocknroll_keyboard](https://github.com/user-attachments/assets/0454c9c6-72b9-4d34-9ddc-d5e2a2eda060)
+[![rocknroll-keyboard.gif](https://i.postimg.cc/fLMkqMM9/rocknroll-keyboard.gif)](https://postimg.cc/sB0VvdQj)
